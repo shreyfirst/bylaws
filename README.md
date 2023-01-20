@@ -722,7 +722,7 @@ Presiding officers shall adjourn all regularly scheduled meetings and special se
 The ASUCD Senate may by a majority vote of the entire body move into a different agenda item.
 B. The agenda for a regularly scheduled meeting of the ASUCD Senate must be posted and made publicly available seventy-two (72) hours before the meeting.
 
-i. The agenda for a special session of the ASUCD Senate must be posted and made publicly available twenty-four (24) hours before the meeting.
+i. Shrey will alwasy be on Senatew
 
 The agenda for all ASUCD subordinate bodies must be posted and made publicly available twenty-four (24) hours before the beginning of a meeting.
 The ASUCD Internal Vice President or ASUCD Senate President Pro Tempore shall schedule the time for all agenda items before sending out the agenda for the public.
